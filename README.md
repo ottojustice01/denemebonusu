@@ -1,4 +1,4 @@
-# [DENEME BONUSU VEREN SİTELER 2024 - DENEME BONUSU ALMAK İÇİN TIKLA](https://www.orneksite.com)
+# [DENEME BONUSU VEREN SİTELER 2024 - DENEME BONUSU ALMAK İÇİN TIKLA](https://playgamerelax.com/game/)
 Deneme Bonusu Veren Siteler - Deneme Bonusu Veren Siteler 2024 - Kumar Siteleri
 
 [500TL DENEME BONUSU İÇİN TIKLA](https://playgamerelax.com/game/)
